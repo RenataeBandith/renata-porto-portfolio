@@ -27,5 +27,5 @@ Estratégias para implementação de práticas sustentáveis em operações empr
 
 ## Contato
 
-LinkedIn  
-Email profissional
+https://www.linkedin.com/in/portorenatamartin1503/ 
+renataporto@yahoo.com.br
